@@ -1,0 +1,1 @@
+# Celetial_Minds_Predicta_1.0
